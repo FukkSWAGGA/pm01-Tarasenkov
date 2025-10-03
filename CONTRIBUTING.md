@@ -1,3 +1,1 @@
-Bobrov 
-Zverev 
-Stalnov
+Правил нету, делайте что хотите
