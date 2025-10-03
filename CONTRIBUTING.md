@@ -1,3 +1,0 @@
-Bobrov
-Zverev
-Stalnov
